@@ -53,3 +53,10 @@ https://www.youtube.com/watch?v=gvNwLKzRfIk
 I have finished the first book, and am currently on the 4th of the Robot novels (#5 on the list). I have been amazed so far at how much the Robot novels, which I had not previously read in completion, add to the story of Foundation and Empire.
 
 Re the book reviewed here, "Complete Robot", Asimov comments that either it or the 1950 "I, Robot" is acceptable, but "Complete Robot" is way better - it really *is* complete. It is a huge book, and contains *all* his Robot short stories and novellas. You don't necessarily have to read *every* story for Foundation & Empire background, but of course you will, if you are an Asimov lover like me :)
+
+https://www.youtube.com/watch?v=YJ6eiSa61pk
+
+https://www.youtube.com/watch?v=_iKCB6mpLhc
+
+https://www.youtube.com/watch?v=GqLPkMx7GEg
+
