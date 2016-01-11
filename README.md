@@ -30,25 +30,47 @@ https://www.youtube.com/watch?v=gvNwLKzRfIk
 
 5 Robots and Empire (1985) The fourth robot novel.
 
+https://www.youtube.com/watch?v=RS7M9eyGXCw
+
 6 The Currents of Space (1952) This is the first of my [Galactic] Empire novels.
+
+https://www.youtube.com/watch?v=ClM4r45GPh4
 
 7 The Stars, Like Dust (1951) The second [Galactic] Empire novel.
 
+https://www.youtube.com/watch?v=S1iBSARRfAE
+
 8 Pebble in the Sky (1950) The third [Galactic] Empire novel and my first novel.
+
+
 
 9 Prelude to Foundation (1988) This is the first Foundation novel.
 
+https://www.youtube.com/watch?v=evV5ksEeDxM
+
 10 Forward the Foundation (1993) This is the second Foundation novel.
+
+https://www.youtube.com/watch?v=8PFh6h7Thj0
 
 11 Foundation (1951) This is now the third Foundation novel but most of the world knows this book as the first book of the original Foundation Trilogy. Actually, it began as a collection of four short stories, originally published between 1942 and 1944, plus an introductory section written for the book in 1949.
 
+https://www.youtube.com/watch?v=UfKfAWaUEKY
+
 12 Foundation and Empire (1952) This is the fourth Foundation novel, made from two short stories, originally published in 1945.
+
+https://www.youtube.com/watch?v=mI1guFkSUt0
 
 13 Second Foundation (1953) This is the fifth Foundation novel, made from two short stories, originally published in 1948 and 1949.
 
+https://www.youtube.com/watch?v=SdrVm5ZeqKA
+
 14 Foundation's Edge (1982) This is the sixth Foundation novel.
 
+https://www.youtube.com/watch?v=eAFjDUBy_Bw
+
 15 Foundation and Earth (1986) This is the seventh Foundation novel.
+
+https://www.youtube.com/watch?v=awx2SQTc350
 
 I have finished the first book, and am currently on the 4th of the Robot novels (#5 on the list). I have been amazed so far at how much the Robot novels, which I had not previously read in completion, add to the story of Foundation and Empire.
 
